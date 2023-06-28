@@ -38,3 +38,38 @@
 1. Heat a frying pan on a medium heat and put oven on low. Put the ham and cheese between the bread slices and press to seal, then spread half the butter on the outside of the sandwich on both sides.
 2. Fry in the pan, pressing down with a fish slice, for 1-2 mins until golden then flip and cook the other side. Keep warm in the oven. Melt remaining butter in the pan and fry egg for 1-2 mins until cooked. Top the croque with the egg and serve with salad.
 :::
+
+##scooby doo sandwich
+
+
+source https://www.elitedaily.com/lifestyle/how-to-make-scooby-doo-sandwich-tiktok-recipe
+
+Ingredients:
+
+Sliced Italian sesame seed bread
+Butter for toast
+2 slices of uncured pepperoni
+4 pieces of smoked bacon
+2 slices of smoked turkey breast
+2 slices pepperjack cheese
+2 slices muenster cheese
+Banana pepper rings
+Romaine lettuce
+Sliced tomato
+Sliced red onion
+Sliced green bell pepper
+Drizzle of zesty Italian salad dressing
+1 tbsp. mustard
+1 tbsp. mayonnaise
+Sprinkle of dried oregano
+Salt and pepper
+
+How To Make The Scooby-Doo Sandwich From TikTok
+@CHRISSY_M616
+Toast three slices of bread with butter.
+In a pan, sear the turkey and pepperoni, and cook the bacon to a crisp.
+Start assembling by placing a slice of pepperjack cheese on the bottom piece of your toast, and then layer sliced turkey, four slices of bacon, banana peppers, oregano leaves, and another piece of toast on top. This is the first sandwich in the tower.
+On the top piece of toast, place a slice of muenster cheese, three slices of pepperoni, red onion, green pepper, banana peppers, oregano, and sliced tomato.
+Season the tomato with salt and pepper and drizzle Italian dressing over the top.
+On the third and final slice of toast, spread on mayonnaise and top with chopped romaine, and mustard.
+Add the third toast to the top of the sandwich, snap a pic, and enjoy.
