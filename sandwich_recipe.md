@@ -22,16 +22,16 @@
 :::
 
 ::: spoiler
-## Croque Madame
+## Croque Madame-mosier
 
 - [Source](https://www.bbcgoodfood.com/recipes/croque-madame)
 
 ### Ingredients
-- 2 thin slices ham
-- 50g Monterey Jack or cheddar, grated
+- 2 thin slices ham/tofu
+- 50g Monterey Jack or cheddar, grated or vegan cheese
 - 2 chunky slices bread, such as sourdough
-- 2 tbsp butter
-- 1 egg
+- 2 tbsp butter/ margerine
+- 1 egg/ cashew
 - handful of salad, to serve
 
 ### Method
