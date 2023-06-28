@@ -1,7 +1,7 @@
 
 # Sandwich recipes
 
-## BLT
+## BT
 
 - [Source](https://www.seriouseats.com/ultimate-blt-sandwich-bacon-lettuce-tomato-recipe)
 
