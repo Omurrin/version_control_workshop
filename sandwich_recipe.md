@@ -1,12 +1,12 @@
 
 # Sandwich recipes
 
-## BT
+## TT
 
 - [Source](https://www.seriouseats.com/ultimate-blt-sandwich-bacon-lettuce-tomato-recipe)
 
 ### Ingredients
-- 3 strips thick-cut, naturally cured bacon
+- 3 strips thick-cut, naturally cured tofu
 - 2 slices high-quality sandwich bread
 - 2 tablespoons mayonnaise
 - 2 to 4 thick slices ripe tomato
